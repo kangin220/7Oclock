@@ -1,1 +1,1 @@
-# 7Oclock
+# 7Oclock 스마트 
