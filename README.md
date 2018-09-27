@@ -1,1 +1,1 @@
-# 7Oclock 스마트 자전거
+# 7Oclock
